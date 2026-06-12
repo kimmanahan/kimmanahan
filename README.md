@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kimmanahan
-- 👀 I’m interested in building cool stuff and lifting heavy weights
+- 👀 I’m interested in coding, cats, and cross fit.
 - 🌱 I’m currently learning ... how to spell
 - 💞️ I’m looking to collaborate on new egg salad recipes. 
 - 📫 How to reach me ... kim.manahan@gmail.com 
